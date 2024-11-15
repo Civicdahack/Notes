@@ -1,0 +1,7 @@
+
+
+         The English language is currently being used by 1.5 billion people across the globe. While not all English users might not use it as their first language, they still use it as a common language to do business worldwide. This can create unintentional exclusion of non english speakers especially in regions with less access to resources to learn different languages. The English language has a very deep history behind the reason for its global use. This can be accredited to the previous colonization of one third of the world done by the British Empire. But another  big contribution would be the global economic rise of the United States. 
+
+         The English language is originated in the country Britain from Anglo-Saxxon tribes immigrating from Europe. This start up is important because we began to see the language spread thought the whole globe with British colonization. Once we get to the United states we begin to see their notable rise in the economy. With the United States becoming a global powerhouse. after the successful victory of WW2, the U.S. have since become leaders in the global economy. With the U.S. being a center for business, learning the english language is the way to gain access into these markets for many who want to conduct global trade.
+
+           Using the English language in the world of business can have many benefits and many draw backs. W
